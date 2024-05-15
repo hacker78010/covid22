@@ -1,1 +1,3 @@
-# covid22-1
+do you hacking your pc  DANGER!!!!
+DWOLOAD VIRUS!!!
+I AM NOT RESPONSIBLE FOR THE COMPUTER
